@@ -1,0 +1,1 @@
+Mesmo dividindo meu tempo com trabalho, estou achando o curso muito didático e ótimo.
